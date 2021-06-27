@@ -9,7 +9,7 @@
 ## Binance
 
 - [โปรแกรมแนะนำเพื่อน](https://www.binance.com/th/activity/referral)
-- 👉 [My referral link](https://www.binance.cc/th/register?ref=YNBG5GNL) You 10%, Friends 10%
+- 👉 [My referral link](https://www.binance.com/th/register?ref=YNBG5GNL) You 10%, Friends 10%
 - Referral ID: YNBG5GNL
 
 ## Satang
